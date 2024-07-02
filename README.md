@@ -1,1 +1,1 @@
-Back into the caves? Ww, you're brave!
+Back into the caves? Wow, you're brave!
